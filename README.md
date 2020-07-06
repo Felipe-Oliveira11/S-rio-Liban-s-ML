@@ -15,6 +15,6 @@ There is urgency in obtaining accurate that to better predict and prepare health
 
 <br>
 
-![alt text](https://www.hospitalsiriolibanes.org.br/institucional/sociedade-beneficente-de-senhoras/PublishingImages/criacao-novo-logotipo-sirio-libanes.png)
+![alt text](https://brasiliaempresas.com.br/wp-content/uploads/2019/02/hospital-sirio-libanes.jpg)
 
 
