@@ -15,6 +15,6 @@ There is urgency in obtaining accurate that to better predict and prepare health
 
 <br>
 
-![alt text](![alt text](https://cdn.shortpixel.ai/client/q_glossy,ret_img/https://www.iventura.ai/wp-content/uploads/2019/12/H1.png))
+![alt text](https://www.hospitalsiriolibanes.org.br/institucional/sociedade-beneficente-de-senhoras/PublishingImages/criacao-novo-logotipo-sirio-libanes.png)
 
 
